@@ -18,7 +18,6 @@ Breakfast Casserole
 5. Pour mixture into greased 9x13’’ pan and bake for 35-50 minutes or until the edges are set and the center is just barely jiggly.
 6. Leftover egg casserole can be stored in the fridge and enjoyed within 3-4 days. Leftovers are delicious reheated in the microwave. 
 
-
 ### Notes:
 
 

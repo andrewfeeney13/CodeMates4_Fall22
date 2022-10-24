@@ -17,7 +17,7 @@
 ### Notes:
 
 
-####Don’t forget to top these with a LOT of cheese! That’s the only way to make them. We aren’t playing around when it comes to melted cheese!
+#### Don’t forget to top these with a LOT of cheese! That’s the only way to make them. We aren’t playing around when it comes to melted cheese!
 
 #### Chicken Taco Topping Ideas:
 1. Sliced jalapenos

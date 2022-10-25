@@ -1,6 +1,7 @@
 # Replace with recipe name
 
 ## Servings: 
+Serves 10
 
 ## Time to prepare: 
 Prep: 15 minutes Cook: 10 minutes Total: 25 minutes

@@ -1,7 +1,7 @@
 # Breakfast Casserole
 
 
-## Servings: 
+Servings: 8-10 people 
 
 ## Time to prepare: 
 

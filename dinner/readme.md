@@ -7,7 +7,15 @@ Serves 10
 Prep: 15 minutes Cook: 10 minutes Total: 25 minutes
 
 ## Ingredients:
-
+1. 1 tablespoon Olive Oil
+2. 1 pound shredded chicken (rotisserie chicken preferred)
+3. 1/2 cup diced onions
+4. 1 can diced tomato (fully drained)
+5. 1 can chopped green chilly (fully drained)
+6. At least 10 Stand and Stuff Taco Shells (El Paso)
+7. 1/2 can of refried beans 
+8. 2 cups of cheese
+9. Toppings of your choice (jalapeno, sour cream, avocado, shredded lettuce, chopped cilantro)
 
 ## Equipment needed:
 1. Oven

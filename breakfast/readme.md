@@ -4,6 +4,7 @@
 Servings: 8-10 people 
 
 ## Time to prepare: 
+ Prep: 10 minutes; Cook: 55 minutes; Total: 1 hour 5 minutes
 
 ## Ingredients:
 1. 2 pounds pork sausage
@@ -32,6 +33,11 @@ Servings: 8-10 people
 6. Leftover egg casserole can be stored in the fridge and enjoyed within 3-4 days. Leftovers are delicious reheated in the microwave. 
 
 ### Notes:
+
+Adapted from Pretty Providence.
+
+To freeze breakfast casserole prepare the recipe and add to your pan. Cover well with plastic wrap and then tinfoil and freeze for 2-3 months. Allow it to thaw overnight in the refrigerator, and then let it come to room temperature before baking according to recipe instructions.
+
 
 
 

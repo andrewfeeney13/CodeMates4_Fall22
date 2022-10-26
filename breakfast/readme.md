@@ -34,6 +34,11 @@ Servings: 8-10 people
 
 ### Notes:
 
+Adapted from Pretty Providence.
+
+To freeze breakfast casserole prepare the recipe and add to your pan. Cover well with plastic wrap and then tinfoil and freeze for 2-3 months. Allow it to thaw overnight in the refrigerator, and then let it come to room temperature before baking according to recipe instructions.
+
+
 
 
 ### Codemates #

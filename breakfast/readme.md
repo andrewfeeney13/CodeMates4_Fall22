@@ -6,15 +6,15 @@
 ## Time to prepare: 
 
 ## Ingredients:
-▢2 pounds pork sausage
-▢12 eggs
-▢1 cup sour cream (light or regular)
-▢1/4 cup milk
-▢salt and pepper
-▢4 green onions
-▢1/2 green bell pepper , diced
-▢1/2 red bell pepper , diced
-▢2 cups shredded cheddar cheese
+1. 2 pounds pork sausage
+2. 12 eggs
+3. 1 cup sour cream (light or regular)
+4. 1/4 cup milk
+5. salt and pepper
+6. 4 green onions
+7. 1/2 green bell pepper , diced
+8. 1/2 red bell pepper , diced
+9. 2 cups shredded cheddar cheese
 
 ## Equipment needed:
 

@@ -4,7 +4,7 @@
 Servings: 8-10 people 
 
 ## Time to prepare: 
- PREP 10 MINS COOK 55 MINS TOTAL 1 HR 5 MINS
+ Prep: 10 minutes; Cook 55 minutes; Total 1 hour 5 minutes
 
 ## Ingredients:
 1. 2 pounds pork sausage

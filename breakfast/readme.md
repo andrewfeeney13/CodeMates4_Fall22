@@ -19,10 +19,10 @@ Servings: 8-10 people
 
 ## Equipment needed:
 
-#### 9x13" pan
-#### Large mixing bowl
-#### Large skillet
-#### Wooden spoon
+1. 9x13" pan
+2. Large mixing bowl
+3. Large skillet
+4. Wooden spoon
 
 ## Steps for preparation:
 1. Preheat oven to 350 degrees. Spray a 9x13’’ pan with cooking spray.
